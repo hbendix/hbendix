@@ -12,4 +12,6 @@ I like to play football, read fantasy and history novels, support Crystal Palace
 
 Some of my favourite books include: A Storm of Swords, Harry Potter and the Half Blood Prince, The Lord of the Rings, All Quiet on the Western Front, Jane Eyre, The Road, The Shining, The Forgotten Soldier.
 
+Currently building [lingly](https://www.lingly.ai), [workauto](https://www.workauto.co.uk) and [Forward Digital](https://www.forwardigital.co.uk).
+
 💃 🕺 🤾 🤺 
