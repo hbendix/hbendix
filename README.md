@@ -1,3 +1,1 @@
-bonjour, hallo, hey, ciao :) 
 
-💃 🕺 🤾 🤺 
